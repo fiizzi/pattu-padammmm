@@ -1,4 +1,12 @@
 # pattu-padammmm
+Ajvad-00-patch-1
+ASRAPPINTE GANAM
+
+
+ashraf mone chaya kudi 
+chayentappam beedi veli
+uppak naattile vazha krishi
+
 
 knbijhdfbiudifjbv vklgijfgnj
 flmdgphjdgtioj 
@@ -9,3 +17,4 @@ f;bmfkobnk'lf
 നിറമാലകൾ തെളിയുന്നതാ മഴവിൽകൊടി പോലെ...
 ആയിരം കൈകളാൽ അലകളതെഴുതുന്ന രാവിൽ
 എഴുതാ കനവിൻ മുകുളങ്ങളിൽ അമൃതകണം വീണു...
+
