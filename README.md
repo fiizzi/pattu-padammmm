@@ -1,5 +1,11 @@
 # pattu-padammmm
+
 knbijhdfbiudifjbv vklgijfgnj
 flmdgphjdgtioj 
 fbjdfiobdfjoh
 f;bmfkobnk'lf
+
+കനകാംബരങ്ങൾ പകരുന്നു കൗതുകം...
+നിറമാലകൾ തെളിയുന്നതാ മഴവിൽകൊടി പോലെ...
+ആയിരം കൈകളാൽ അലകളതെഴുതുന്ന രാവിൽ
+എഴുതാ കനവിൻ മുകുളങ്ങളിൽ അമൃതകണം വീണു...
